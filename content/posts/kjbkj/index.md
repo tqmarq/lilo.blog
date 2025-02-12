@@ -56,7 +56,7 @@ Ja, einfach umsichtig sein. Es fällt mir zum Beispiel auf, wenn ich an einer Am
 
 {{<box>}}
 
-Infokasten
+**Infokasten**
 
 Veronika Hänseler, auch “Vroni” genannt, lebt seit etwa 2.5 Jahren im Altersheim Mon Bijou Domicil etwas ausserhalb der Stadt Bern. Sie ist eine sehr offene, herzliche und ehrliche Person, die es mag, zu nähen oder auch zu lesen. Sie erzählt einige Alltags-Anekdoten, wie es ist im Altersheim zu leben, ob der Respekt für ältere Menschen weniger geworden ist und was man noch alles im Altersheim oder auch sonst in der Schweiz ändern sollte.
 
