@@ -21,8 +21,6 @@ Im Altersheim zu leben ist etwas ganz anderes als Zuhause. Viele Dinge hat man a
 
 > *“Ich fühle mich wohl und auch privilegiert hier” (Veronika Hänseler)*
 
-
-
 **Welche Orte mögen Sie hier besonders ?**
 
 Gottlob haben wir einen schönen, aber kleinen Garten. Ich habe Freude am Garten, weil mich die Kulisse an das "West Side Story" Musical erinnert. Die Umgebung ist genau wie im Film, weil das Haus gegenüber lauter Balkone hat, die voller Glyzinen sind. Es fehlt nur noch die Hauptdarstellerin “Maria”, die auf der Treppe steht. Neben dem tollen Garten zieht es mich auch oft in die Bibliothek, die sich im 6. Stock befindet. Ich liebe Bibliotheken über alles und verbringe sehr gerne Zeit dort. 
@@ -56,8 +54,14 @@ Ja, das habe ich in gewissen Bereichen gemerkt, aber man stempelt euch damit auc
 
 Ja, einfach umsichtig sein. Es fällt mir zum Beispiel auf, wenn ich an einer Ampel stehe, viele Menschen mir helfen und mich fragen, ob sie mit mir über die Strasse gehen sollten, wie ihr und das schätze ich extrem. Es ist unglaublich, wie aufmerksam die Menschen sind.
 
-**Infokasten**
+{{<lead>}}
+
+Infokasten
 
 Veronika Hänseler, auch “Vroni” genannt, lebt seit etwa 2.5 Jahren im Altersheim Mon Bijou Domicil etwas ausserhalb der Stadt Bern. Sie ist eine sehr offene, herzliche und ehrliche Person, die es mag, zu nähen oder auch zu lesen. Sie erzählt einige Alltags-Anekdoten, wie es ist im Altersheim zu leben, ob der Respekt für ältere Menschen weniger geworden ist und was man noch alles im Altersheim oder auch sonst in der Schweiz ändern sollte.
+
+{{</lead>}}
+
+
 
 <!--EndFragment-->
