@@ -57,7 +57,7 @@ Jeden Tag haben wir jemand anderes auf der Abteilung. Es gibt nicht so viel Pers
 
 Man muss in einem Altersheim eine oder zwei Personen haben, die Ideen spenden können und natürlich braucht es auch sehr aufmerksames Pflegepersonal. Die merken, warum sich Bewohner*innen alleine fühlen. Das Problem ist aber, dass das Pflegepersonal nicht sofort bemerkt, dass es jemandem schlecht geht, da sie jeden Tag auf einer anderen Abteilung eingeteilt sind.
 
-**Haben Sie das Gefühl, dass es eine gewisse Spaltung zwischen den verschiedenen Generationen gibt?\*\***
+**Haben Sie das Gefühl, dass es eine gewisse Spaltung zwischen den verschiedenen Generationen gibt?**
 
 Ja, das habe ich in gewissen Bereichen gemerkt, aber man stempelt euch damit auch einfach nur ab. Manche starren nur auf das Handy, aber in den Bussen ist es super, wie die Menschen aufstehen, alle "Burschen" und auch "Mädi". Macho Typen zwischen 16 und 30 stehen nicht viel auf. Ich bin manchmal auch beschämt, weil manche einfach so schnell aufstehen und Platz machen, obwohl es noch genug Platz hätte im Bus.
 
