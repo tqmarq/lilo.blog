@@ -13,12 +13,6 @@ Wie fühlt es sich an, wenn das Leben langsamer wird, aber die Gedanken wach ble
 
 ![Veronika (“Vroni”)Hänseler in ihrem kleinen aber heimeligen Zimmer im Altersheim Mon Bijou Domicil (Aufnahme: 03.02.2025)](whatsapp-bild-2025-02-09-um-16.17.00_4f46bed3-1-.jpg)
 
-
-
-
-
-Wie fühlt es sich an, wenn das Leben langsamer wird, aber die Gedanken wach bleiben? Eine Bewohnerin im Altersheim, Frau Hänseler erzählt von ihren Alltagsgeschichten und dem Wunsch nach mehr Beachtung und Wertschätzung. 
-
 Es ist Vormittag und wir betreten ein bisschen aufgeregt das Altersheim “Domicil”. Frau Hänseler erwartet uns im 5. Stock  in ihrem kleinen “Stübeli”. Vor ihrer Wohnungstür hängen tibetische Gebetsfahnen. Als wir anklopfen und die Tür öffnen, begrüsst uns Frau Hänseler mit einem herzlichen Lächeln und lädt uns ein, Platz zu nehmen.  An den Wänden hängen Bilder, die aus ihren Asien Reisen stammen. Von ihrem Fenster aus hat Veronika einen wunderschönen Ausblick über die Stadt Bern und Umgebung. Frau Hänsler wirkt auf uns wie eine wissens interessierte, offene, positiv gestimmte Frau. 
 
 **Wie fühlt es sich an, im Altersheim zu leben?**
@@ -43,15 +37,13 @@ Es kommt ganz darauf an, wie man eingestellt ist.  Da viele fast nichts mehr h�
 
 Man hat die Möglichkeit, Essen zu gehen, ohne selbst noch kochen zu müssen. Bei uns im Esssaal gibt es immer wieder Bewohner*innen, die Hilfe beim Essen benötigen. Beispielsweise ist bei uns am Tisch so jemand. Manchmal schreit die Bewohnerin irgendwo dran oder schmeisst das Glas beinahe um. In solchen Situationen gibt es Menschen, die helfen.  
 
-![]()
-
 **Was gefällt Ihnen weniger gut an diesem Altersheim?**
 
 Jeden Tag haben wir jemand anderes auf der Abteilung. Es gibt nicht so viel Personal. Die meisten vergessen an was man leidet und die meisten vergessen sofort, dass ich manche Dinge nicht sehen kann. Ich möchte es ihnen nicht übel nehmen, aber manchmal werde ich ein bisschen verrückt. Manche können ganz schlecht Deutsch und dann versuchte ich mit ihnen Englisch zu reden, was dann meistens klappt. Trotzdem schätze ich das Personal sehr und man merkt, dass sie sich Mühe geben.  Unser Altersheim  ist schon wieder teurer geworden. Und dabei ist das Domizil nicht einmal das vornehmste. Ich bin jetzt 2.5 Jahre hier und sie haben 3 mal die Preise erhöht. Ich hatte sehr wenig auf der Bank, da ich immer ein “Reisefüdli” war. 
 
 **Wie können wir verhindern, dass sich ältere Menschen einsam und isoliert fühlen?**
 
-Man muss in einem Altersheim eine oder zwei Personen haben, die Ideen spenden können und natürlich braucht es auch sehr aufmerksames Pflegepersonal. Die merken, warum sich Bewohner*innen alleine fühlen. Das Problem ist aber, dass das Pflegepersonal nicht sofort bemerkt, dass es jemandem schlecht geht, da sie jeden Tag auf einer anderen Abteilung eingeteilt sind. 
+Man muss in einem Altersheim eine oder zwei Personen haben, die Ideen spenden können und natürlich braucht es auch sehr aufmerksames Pflegepersonal. Die merken, warum sich Bewohner*innen alleine fühlen. Das Problem ist aber, dass das Pflegepersonal nicht sofort bemerkt, dass es jemandem schlecht geht, da sie jeden Tag auf einer anderen Abteilung eingeteilt sind.
 
 **\
 Haben Sie das Gefühl, dass es eine gewisse Spaltung zwischen den verschiedenen Generationen gibt?**
