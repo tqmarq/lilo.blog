@@ -21,6 +21,8 @@ Im Altersheim zu leben ist etwas ganz anderes als Zuhause. Viele Dinge hat man a
 
 > *“Ich fühle mich wohl und auch privilegiert hier” (Veronika Hänseler)*
 
+
+
 **Welche Orte mögen Sie hier besonders ?**
 
 Gottlob haben wir einen schönen, aber kleinen Garten. Ich habe Freude am Garten, weil mich die Kulisse an das "West Side Story" Musical erinnert. Die Umgebung ist genau wie im Film, weil das Haus gegenüber lauter Balkone hat, die voller Glyzinen sind. Es fehlt nur noch die Hauptdarstellerin “Maria”, die auf der Treppe steht. Neben dem tollen Garten zieht es mich auch oft in die Bibliothek, die sich im 6. Stock befindet. Ich liebe Bibliotheken über alles und verbringe sehr gerne Zeit dort. 
